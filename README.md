@@ -46,4 +46,4 @@ Explore the app here:
 Vedururi Sreenivasulu
 
 
-Passionate about applying technology to meaningful education. Connect with me on GitHub.
+Passionate about applying technology to meaningful education. Connect with me on GitHub or LinkedIn.
